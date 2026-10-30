@@ -1,1 +1,0 @@
-# -zamin_nama.html-
